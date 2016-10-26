@@ -25,3 +25,5 @@ Here we provide a list of benefits:
 It must be said though, that yoga is not a panacea. 
 It won't cure a serious illness, and we must be aware
 of this too.
+
+But it actually does and you should take this seriously
